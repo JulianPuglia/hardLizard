@@ -1,1 +1,0 @@
-Proyecto HardLizar "Perdon Eric no te merecemos"
